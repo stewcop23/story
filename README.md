@@ -1,4 +1,2 @@
-# fluffy-lamp 
-its a story
-a horror story
-based in japan
+# A Horror story 
+a horror story that is set in modern day japan, told from the perspective of a starved spirit.
