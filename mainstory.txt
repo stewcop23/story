@@ -5,3 +5,5 @@ The door opens into a dark room.
 all 100 candles burning bright
 
 wbthis
+
+now this
