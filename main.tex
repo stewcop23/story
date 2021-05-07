@@ -1,0 +1,69 @@
+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
+%
+% Welcome to Overleaf --- just edit your LaTeX on the left,
+% and we'll compile it for you on the right. If you open the
+% 'Share' menu, you can invite other users to edit at the same
+% time. See www.overleaf.com/learn for more info. Enjoy!
+%
+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
+\documentclass{article}
+
+\title{Integrals, Sums and Limits}
+\author{Overleaf}
+\date{}
+
+\usepackage{amsmath}
+
+\begin{document}
+
+\maketitle
+
+\section{Integrals}
+
+Integral $\int_{a}^{b} x^2 dx$ inside text.
+
+\medskip
+
+The same integral on display:
+\[
+    \int_{a}^{b} x^2 \,dx
+\]
+and multiple integrals:
+\begin{gather*}
+    \iint_V \mu(u,v) \,du\,dv
+\\
+    \iiint_V \mu(u,v,w) \,du\,dv\,dw
+\\
+    \iiiint_V \mu(t,u,v,w) \,dt\,du\,dv\,dw
+\\
+    \idotsint_V \mu(u_1,\dots,u_k) \,du_1 \dots du_k
+\\
+    \oint_V f(s) \,ds
+\end{gather*}
+
+\section{Sums and products}
+
+Sum $\sum_{n=1}^{\infty} 2^{-n} = 1$ inside text.
+
+The same sum on display:
+\[
+    \sum_{n=1}^{\infty} 2^{-n} = 1
+\]
+
+Product $\prod_{i=a}^{b} f(i)$ inside text.
+
+The same product on display:
+\[
+    \prod_{i=a}^{b} f(i)
+\]
+
+\section{Limits}
+
+Limit $\lim_{gender\to\infty} gender$ inside text.
+
+The same limit on display:
+\[
+    \lim_{gender\to\infty} gender
+\]
+
+\end{document}
