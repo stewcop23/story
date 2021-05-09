@@ -2,7 +2,7 @@
 * Mythological creatures
    * Horror
 DQ
-* How can I create a short horror story that incorporates elements and creatures(?) from asian mythology/history/art
+* How can I create a short horror story that incorporates elements and creatures(?) from east Asian mythology/history/art
 RQ’s
 1. What is the scariest “still living” creature from eastern mythology
 2. When is this creature from
@@ -23,7 +23,11 @@ http://www.aichi-gakuin.ac.jp/~jeffreyb/kabuki.html
 https://en.wikipedia.org/wiki/Onry%C5%8D
 
 Process:
-I started my research with a collection of japanese creates portrayed in a book by a man by the name of toriyama sekien. This collection of yokai was a good starting place for my research as it spanned everything from bells to creatures with eyes on their hands. But I took particular interest in a creature called the Aoandon this yokai would appear at the end of a game called Hyakumonogatari Kaidankai, but didn't really do anything. I then decided to look more into this game, and it turned out to be really interesting. So now i needed to find what kind of creature my main character was going to face. After finding a website with some interesting stories, I finally decided on the Hidarugami (hunger god(s)). 
+I started my research with a collection of Japanese creates portrayed in a book by a man by the name of Toriyama Seiken. 
+This collection of yokai was a good starting place for my research as it spanned everything from bells to creatures with eyes on their hands. 
+But I took particular interest in a creature called the Aoandon this yokai would appear at the end of a game called Hyakumonogatari Kaidankai, but didn't really do anything. 
+I then decided to look more into this game, and it turned out to be really interesting. So now I needed to find what kind of creature my main character was going to face. 
+After finding a website with some interesting stories, I finally decided on the Hidarugami (hunger god(s)). 
 
 Story outline:
 
@@ -33,3 +37,14 @@ Story outline:
 4.Char living life, goes for walk
 5.Finds Hidarugami
 6.Either starves to death or makes it back to safety
+
+Character information:
+
+Roch:
+French for rock
+questioning gender
+enjoys horror
+--> watches a bunch of horror movies
+--> he sees horror as a challenge, a way to prove himself
+Lives in Ueno village (Japan)
+was born in
