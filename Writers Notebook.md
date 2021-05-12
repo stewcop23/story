@@ -50,3 +50,11 @@ After finding a website with some interesting stories, I finally decided on the 
   * possible reason for him to prove himself
 * brilliant blue green-eyes
 
+
+## Todo
+- [ ] full outline of story
+- [ ] replace outline points with actual writing
+- [ ] workshop
+- [ ] listen too suggestions
+- [ ] make edits
+- [ ] submit
