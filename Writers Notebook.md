@@ -1,8 +1,12 @@
+## Brainstorming
+
 * Part short story with interspersed poems
 * Mythological creatures
    * Horror
+
 ## DQ
-* How can I create a short horror story that incorporates elements and creatures(?) from east Asian mythology/history/art
+How can I create a short horror story that incorporates elements and creatures(?) from east Asian mythology/history/art
+
 ## RQ’s
 1. What is the scariest “still living” creature from eastern mythology
 2. When is this creature from
