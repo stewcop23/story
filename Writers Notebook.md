@@ -15,13 +15,13 @@ How can I create a short horror story that incorporates elements and creatures(?
 5. What was the most common style of building used at this time?
 
 ## Resources
-https://en.wikipedia.org/wiki/Konjaku_Hyakki_Sh%C5%ABi
-https://en.wikipedia.org/wiki/Hyakumonogatari_Kaidankai
-https://hyakumonogatari.com/2013/10/18/10-famous-japanese-ghost-stories/
-http://www.kabuki21.com/bancho_sarayashiki.php
-http://www.aichi-gakuin.ac.jp/~jeffreyb/kabuki.html
-https://en.wikipedia.org/wiki/Onry%C5%8D
-https://hyakumonogatari.com/what-is-hyakumonogatari/
+https://en.wikipedia.org/wiki/Konjaku_Hyakki_Sh%C5%ABi  
+https://en.wikipedia.org/wiki/Hyakumonogatari_Kaidankai  
+https://hyakumonogatari.com/2013/10/18/10-famous-japanese-ghost-stories/  
+http://www.kabuki21.com/bancho_sarayashiki.php  
+http://www.aichi-gakuin.ac.jp/~jeffreyb/kabuki.html  
+https://en.wikipedia.org/wiki/Onry%C5%8D  
+https://hyakumonogatari.com/what-is-hyakumonogatari/  
 
 ## Process:
 I started my research with a collection of Japanese creates portrayed in a book by a man by the name of Toriyama Seiken. 
