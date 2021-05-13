@@ -13,3 +13,15 @@ introduce new char Kyle
 have conversation
 
 walk together away from river
+
+Reach small apartments, describe 
+
+Enter building, describe 
+
+Setup game
+
+Play game
+
+100th story nothing happened
+
+Leave disappointed 
