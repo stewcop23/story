@@ -10,10 +10,10 @@ As he sits there all of the problems that he has been worrying about drift away,
 
 In his heightened state of awareness, he could hear the sound of someone’s shoes walking across the sand. the footsteps were heavy, meaning it was likely a man, and there was only one person who matched that description who was going to be nearby that night, and that was Kyle.
 
-"Hiya Roch," Kyle said loudly
-Roch's eyes shot open "Kyle!" he exclaimed "so good to see you decide to join me tonight"
-"well it was either this or spend another night stuck in my home, and I’ve had enough of that lately"
-"say less, my man!"
+"Hiya Roch," Kyle said loudly  
+Roch's eyes shot open "Kyle!" he exclaimed "so good to see you decide to join me tonight"  
+"well it was either this or spend another night stuck in my home, and I’ve had enough of that lately"  
+"say less, my man!"  
 
 Kyle extended his hand down to Roch and pulled him off of his patch of grass with very little effort. Kyle was not only strong but built like a Dorito, with broad shoulders tapering down into a moderately sized waist. The thing that would set him appart from all of the other dude-bros though is his smile, it knew how to cheer you up on a sad day, and it knew how to make you day go from good to great.
 
