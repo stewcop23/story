@@ -22,6 +22,7 @@ http://www.kabuki21.com/bancho_sarayashiki.php
 http://www.aichi-gakuin.ac.jp/~jeffreyb/kabuki.html  
 https://en.wikipedia.org/wiki/Onry%C5%8D  
 https://hyakumonogatari.com/what-is-hyakumonogatari/  
+https://www.thespruce.com/japanese-plant-varieties-4154375  
 
 ## Process:
 I started my research with a collection of Japanese creates portrayed in a book by a man by the name of Toriyama Seiken. 
