@@ -1,6 +1,6 @@
 ## Brainstorming
 
-* Part short story with interspersed poems
+* ~~Part short story with interspersed poems
 * Mythological creatures
    * Horror
 
