@@ -15,14 +15,15 @@ Roch's eyes shot open "Kyle!" he exclaimed "so good to see you decide to join me
 "well it was either this or spend another night stuck in my home, and I’ve had enough of that lately"  
 "say less, my man!"  
 
-Kyle extended his hand down to Roch and pulled him off of his patch of grass with very little effort. Kyle was not only strong but built like a Dorito, with broad shoulders tapering down into a moderately sized waist. The thing that would set him appart from all of the other dude-bros though is his smile, it knew how to cheer you up on a sad day, and it knew how to make you day go from good to great.
+Kyle extended his hand down to Roch and pulled him off of his patch of grass with very little effort. Kyle was not only strong but built like a Dorito, with broad shoulders tapering down into a moderately sized waist. The thing that would set him apart from all of the other dude-bros though is his smile, it knew how to cheer you up on a sad day, and it knew how to make your day go from good to great. Aside from his other hobbies of working out and working out, Kyle loved to read and write poetry, it was his favourite thing to do in the world. Like someone addicted to caffeine, he would begin his morning by reading one piece of poetry, the creating one of his own. They were never really that good, but Kyle wasn’t exactly the sharpest tool in the shed.
 
-Reach small apartments, describe 
+The two walk side-by-side, step-in-step, back up over the fence, and down onto the sidewalk, and back into the town. however, on their journey, something was amiss, for whatever reason Roch was checking behind him every few minutes and making turns seemingly at random. however, they finally reached their destination. it was a small apartment, it was painted a dull grey that, in the fading light looked almost red. on each of the three floors there was a small window, and beneath each window, and on either side of the door was an Ofuda each with a name of a different ***Kami*** inscribed.
 
-Enter building, describe 
+Kyle looked at Roch 
+"I don’t know if I like the look of this, Roch."
+"Just follow me, it will all be ok"
 
-Setup game
-
+Roch walks up to the polished wooden door and knocks, very forcefully, three times, then steps back. A few seconds pass and the door opens about halfway and a man pokes his head out and asks to talk to Roch, the two exchange a few words, then the man walks inside, and gestures for Roch and Kyle to follow him. The inside of the apartment was almost pitch black, with the only light coming from a few candles dispersed about the room. There were several other people in the room but there was so little light that it was impossible to make out any defining features on any of them. Roch walks to the centre of the room where a circular mirror is placed, he slings the messenger bag off of his shoulder and onto the ground. He then unbuckled the top and starts to take things out of the bag. Before long he had pulled nearly 20 candles from this bag. These candles along with the other 80 that had been brought by the others made up the basis of the game. 
 Play game
 
 100th story nothing happened
@@ -33,4 +34,4 @@ split ways on the way home
 
 walking through woods by river find hidarugami
 
-cut back to kyle feeling somethings off, and running back to the river
+cut back to kyle feeling something is off, and running back to the river
