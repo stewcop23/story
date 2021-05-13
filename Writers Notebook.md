@@ -54,6 +54,15 @@ After finding a website with some interesting stories, I finally decided on the 
   * possible reason for him to prove himself
 * brilliant blue green-eyes
 
+### Kyle
+typical Kyle except for:
+* likes poetry
+* good at but hates fighting
+* kinda dislikes horror  
+
+Dorito shaped  
+Extremely good at math
+
 
 ## Todo
 - [ ] full outline of story
