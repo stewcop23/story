@@ -6,6 +6,8 @@ If you were to see him the first thing you would notice would be his eyes. They 
 
 walks down the street, then round corner. walk onto street with less gravel (add new scenery so there is more to discribe), walk down to river, describe water
 
+As he reaches the end of the alley he turns to the right, now walking on a propper road. one side of the sidewalk is covered in pink and blue hydrangeas that have wrapped themselfs around a fence. the Hydrangeas stretch down the side of the road for miles, only stopping when the road goes through a mountain underpass. On the other side, there is a road, it isn't very busy, but the deep indentations from the tires of many year's worths of a lively industry tell a different story. with each passing car, the grooves add another tally-mark to their list, an ever-expanding never-ending list. he stops walking and begins to climb the fence, his muscles moving in quick and well precticed movements. as he reaches the top he stops, and looks out to the landscape around him. hee looks out and sees a once thriving city on one side, and a dense forrest on the other. *What a brilliant contrast* He thinks to himeself. He jumps off of the fence, and 
+
 sit down too meditate, comment on the effects that it has on his mind
 
 introduce new char Kyle
@@ -24,4 +26,10 @@ Play game
 
 100th story nothing happened
 
-Leave disappointed 
+Leave disappointed  
+
+split ways on the way home  
+
+walking through woods by river find hidarugami
+
+cut back to kyle feeling somethings off, and running back to the river
