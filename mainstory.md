@@ -43,4 +43,7 @@ Before he had gone more that 50 meters into the forest he saw a path, not a wide
 
 Kyle had always had this ability to sense when his friends were in danger, it came about from his days of hanging out with Roch, where he would always leave him alone for just a few minutes, and by the time he had gotten back Roch would already be in combat with some random person. Now was one of those times where he felt that uncomfortable pull in his stomach that told him Roch was in trouble. So he turned around and sprinted as fast as he could back in the direction that Roch had traveled originally, following the footsteps left by his companion. As he was running he kept repeating the phrase *what would Roch do?* to try and get in the headspace of who he was following. Before long he could see the bridge, and he knew without thinking that Roch had gone across it. He followed the footsteps up until the edge of the forest where he cursed under his breath, then ran into the trees.
 
-Kyle saves Roch - Bromance ensues?
+Roch could hear Kyle's footsteps coming, but hardly had the strength to move. Roch tried to hiss out a few words, but it was barely above a whisper. The gnawing feeling in his stomach grew louder with every passing second. Kyle rounded the corner where Roch had collapsed, he ran up to Roch
+
+"whats going on?!" Kyle shouted panically
+Roch looked up and responded quietly "Food"
