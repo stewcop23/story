@@ -31,6 +31,7 @@ Because of his inability to make friends in his formative years, Roch had always
 
 
 100th story nothing happened
+At last it was down to the final candle, and it was Kyle's turn. Much as one would come to expect from Kyle if you knew him for a long time, as Roch did, he spoke in the form of a narritive poem. He told a story about a family of wandering monks who had been killed on a religious pilgrimage by a group of vengeful wolf spirits. it was a tragic story, a tear formed in the corner of Roch eye. the story struck a cord with him, it made him remember his past, and how he had to move around his home province nearly every year. When Kyle had finnished telling his story the reached down to the candle. There was a sharp inhale of breath from everyone in the circle, they were preparing themself for what was supposed to happen in the next few seconds. Kyle pinched the candle. it was silent for a while, as ever 
 
 the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. The outside world was bathed in an orange twilight that lit up the tops of the buildings in an eerie glow. They set off from the small apartment, back the way they came. It was a quiet walk, almost all of the people who lived in this town were asleep.
 
