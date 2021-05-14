@@ -60,7 +60,7 @@ After finding a website with some interesting stories, I finally decided on the 
 typical Kyle except for:
 * likes poetry
 * good at but hates fighting
-* kinda dislikes horror  
+* kind of dislikes horror  
 
 Dorito shaped  
 Extremely good at math
@@ -69,7 +69,7 @@ Extremely good at math
 ## Todo
 - [x] full outline of story
 - [ ] replace outline points with actual writing
-- [ ] workshop
+- [x] workshop
 - [ ] listen too suggestions
 - [ ] make edits
 - [ ] submit
