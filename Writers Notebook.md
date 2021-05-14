@@ -70,6 +70,6 @@ Extremely good at math
 - [x] full outline of story
 - [x] replace outline points with actual writing
 - [x] workshop
-- [ ] listen too suggestions
-- [ ] make edits
+- [x] listen too suggestions
+- [x] make edits
 - [ ] submit
