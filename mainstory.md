@@ -23,20 +23,23 @@ Kyle looked at Roch
 "I don’t know if I like the look of this, Roch."  
 "Just follow me, it will all be ok".  
 
-Roch walks up to the polished wooden door and knocks, very forcefully, three times, then steps back. A few seconds pass and the door opens about halfway and a man pokes his head out and asks to talk to Roch, the two exchange a few words, then the man walks inside, and gestures for Roch and Kyle to follow him. The inside of the apartment was almost pitch black, with the only light coming from a few candles dispersed about the room. There were several other people in the room but there was so little light that it was impossible to make out any defining features on any of them. Roch walks to the centre of the room where a circular mirror is placed, he slings the messenger bag off of his shoulder and onto the ground. He then unbuckled the top and started to take things out of the bag. Before long he had pulled nearly 20 candles from this bag. These candles along with the other 80 that had been brought by the others made up the basis of the game. one of the shadowy figures steps forward towards the candles that have been arranged in a circle around the mirror. They light a match and reach down to the first candle, then they light the next, and again, until all of them have been lit.
+Roch walks up to the polished wooden door and knocks, very forcefully, three times, then steps back. A few seconds pass and the door opens about halfway and a man pokes his head out and asks to talk to Roch, the two exchange a few words, then the man walks inside, and gestures for Roch and Kyle to follow him. The inside of the apartment was almost pitch black, with the only light coming from a few candles dispersed about the room. There were several other people in the room but there was so little light that it was impossible to make out any defining features on any of them. Roch walks to the centre of the room where a circular mirror ahs been placed on the ground, he slings the messenger bag off of his shoulder and onto the ground. He then unbuckled the top and started to take things out of the bag. Before long he had pulled nearly 20 candles from this bag. These candles along with the other 80 that had been brought by the others made up the basis of the game. one of the shadowy figures steps forward towards the candles that have been arranged in a circle around the mirror. They light a match and reach down to the first candle, then they light the next, and again, until all of them have been lit.
 
 
 Play game
 
 100th story nothing happened
 
-the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. The outside world was bathed in an orange twilight that lit up the tops of the buildings in an eerie glow. On their way back home Kyle attempted to make conversation.
+the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. The outside world was bathed in an orange twilight that lit up the tops of the buildings in an eerie glow. They set off from the small apartment, back the way they came. It was a quiet walk, almost all of the people who lived in this town were asleep.
 
 "So that was lame huh?"  
 "yeah, it sure was" Roch responded dully "maybe next time you come by something more fun will happen".
+Kyle mumbled a 'yeah' then took a huge yawn
 
-They had arrived at the fence, it was strange seeing two figures cloaked in shadow climbing a fence, it looked very out of place. as they reached the bottom of hill on the other side of the fence. They looked at each other, then walked away from each other. Kyle walked to the east, towards the rising sun, and his home, and Roch turned to the left, and walked beside the river for a while.
+They had arrived at the fence, it was strange seeing two figures cloaked in shadow climbing a fence, it looked very out of place. as they reached the bottom of hill on the other side of the fence. They looked at each other, then walked away from each other. Kyle walked to the east, towards the rising sun, and his home, and Roch turned to the left, and walked beside the river for a while. As he walked, Roch though pensively about the motion of the river. He thought about how our lives all flow like the tides of the river, and that sometimes there are changes beyond our control. In the distance Roch spots a old looking bridge, as he approached he started to get a better look at it. It was old, probably close to fifty years old
 
 walking through woods by river find hidarugami
 
 cut back to Kyle feeling something is off, and running back to the river
+
+Kyle save Roch - Bromance ensues?
