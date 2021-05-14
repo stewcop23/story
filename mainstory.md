@@ -52,6 +52,6 @@ Roch looked up and responded quietly "Food"
 
 Kyle franticly pulled a pen out of his pocket a wrote the charactor for rice ron his hand. As per the weak instructions given by Roch he raised his hand to the hooded figures. They looked at the charactor, looked at each other, then back at Kyle and Roch. In a flurry of movement the two figures vanished, their robes whipping in the light of twilight. Kyle looked down at Roch who had returned back to normal, and was seemingly unaffected, by the events that had just transpired. 
 
-"You ok?"  asked Kyle
-"yeah, i feel pretty good actually" Roch responded "I feel like i could run a mile."
-"Great, Now lets get you back home"
+"You ok?"  asked Kyle.  
+"yeah, i feel pretty good actually" Roch responded "I feel like i could run a mile."  
+"Great, Now lets get you back home". 
