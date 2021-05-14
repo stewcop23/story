@@ -32,7 +32,7 @@ Play game
 
 Leave disappointed  
 
-the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door.
+the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. 
 
 split ways on the way home  
 
