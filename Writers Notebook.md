@@ -68,7 +68,7 @@ Extremely good at math
 
 ## Todo
 - [x] full outline of story
-- [ ] replace outline points with actual writing
+- [x] replace outline points with actual writing
 - [x] workshop
 - [ ] listen too suggestions
 - [ ] make edits
