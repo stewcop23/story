@@ -30,11 +30,12 @@ Play game
 
 100th story nothing happened
 
-Leave disappointed  
+the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. The outside world was bathed in an orange twilight that lit up the tops of the buildings in an eerie glow. On their way back home Kyle attempted to make conversation.
 
-the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door. 
+"So that was lame huh?"
+"yeah, it sure was" Roch responded dully "maybe next time you come by something more fun will happen".
 
-split ways on the way home  
+They had arrived at the fence, it was strange seeing two figures cloaked in shadow climbing a fence, it looked very out of place. as they reached the bottom of hill on the other side of the fence. They looked at each other, then walked away from each other. Kyle walked to the east, towards the rising sun, and his home, and Roch turned to the left, and walked beside the river for a while.
 
 walking through woods by river find hidarugami
 
