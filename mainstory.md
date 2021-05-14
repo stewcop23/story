@@ -4,7 +4,7 @@ He steps out of the house, down the front steps and out onto the gravel path. Th
 
 If you were to see him the first thing you would notice would be his eyes. They were a brilliant blue-green mixture, and if you looked into them for long enough you could hear them speak. They could talk for hours, but you wouldn't want to hear what they had to say. They would find the qualities that hated the most about yourself and taunt you with them. The more you looked into them, the more they could see about you. The pupils of those eyes were deeper than a canyon, they pulled in so much light that even your vision starts to bend towards them. These eyes had seen a lot but they were going to see much more soon.
 
-As he reaches the end of the alley he turns to the right, now walking on a propper road. one side of the sidewalk is covered in pink and blue hydrangeas that have wrapped themselves around a fence. the Hydrangeas stretch down the side of the road for miles, only stopping when the road goes through a mountain underpass. On the other side, there is a road, it isn't very busy, but the deep indentations from the tires of many year's worth of a lively industry tell a different story. With each passing car, the grooves add another tally-mark to their list, an ever-expanding never-ending list. he stops walking and begins to climb the fence, his muscles moving in quick and well-practiced movements. as he reaches the top he stops and looks out to the landscape around him. hee looks out and sees a once-thriving city on one side, and a dense forest on the other. *What a brilliant contrast* He thinks to himself. He jumps off of the fence and moves swiftly down the incline just beyond the fence. walking beside the water until he reaches a small patch of grass that had been pushed down. He sits down and crosses his legs and closes his eyes.
+As he reaches the end of the alley he turns to the right, now walking on a proper road. one side of the sidewalk is covered in pink and blue hydrangeas that have wrapped themselves around a fence. the Hydrangeas stretch down the side of the road for miles, only stopping when the road goes through a mountain underpass. On the other side, there is a road, it isn't very busy, but the deep indentations from the tires of many year's worth of a lively industry tell a different story. With each passing car, the grooves add another tally-mark to their list, an ever-expanding never-ending list. he stops walking and begins to climb the fence, his muscles moving in quick and well-practiced movements. as he reaches the top he stops and looks out to the landscape around him. he looks out and sees a once-thriving city on one side, and a dense forest on the other. *What a brilliant contrast* He thinks to himself. He jumps off of the fence and moves swiftly down the incline just beyond the fence. walking beside the water until he reaches a small patch of grass that had been pushed down. He sits down and crosses his legs and closes his eyes.
 
 As he sits there all of the problems that he has been worrying about drift away, and the only things he focuses on are the sounds of the birds singing as they fly through the air, and the gentle rustle of the trees, and the thunderous roar of the river. He had started when he first moved out here, as a way to try and control his anger problems, but it has since become much more than just a way to control it, has become a safe haven for whenever he feels too overwhelmed. 
 
@@ -32,8 +32,10 @@ Play game
 
 Leave disappointed  
 
+the two of them stand and turn to go. As Roch reaches the door, he turns around and says to the cluster of people "I hope we can do this again sometime, maybe something interesting will happen then". He shakes his head as the two of them walk out the door.
+
 split ways on the way home  
 
 walking through woods by river find hidarugami
 
-cut back to kyle feeling something is off, and running back to the river
+cut back to Kyle feeling something is off, and running back to the river
