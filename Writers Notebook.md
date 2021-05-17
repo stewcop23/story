@@ -72,4 +72,7 @@ Extremely good at math
 - [x] workshop
 - [x] listen too suggestions
 - [x] make edits
-- [ ] submit
+- [x] submit
+
+## propperly cited sources
+Toriyama, Sekien. Hyakki shūi /, 2, Maekawa Yahei, 1805, https://doi.org/10.5479/sil.892810.39088018214379
