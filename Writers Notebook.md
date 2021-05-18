@@ -86,3 +86,8 @@ This was the jumping off point for most of my ideation as to what this story wil
 
 What is Hyakumonogatari? , 2010, https://hyakumonogatari.com/what-is-hyakumonogatari/
 This website has a great wealth of information on this ritual and Japanese spirits as a whole. I used this website as a sort of spring board for my research. It not only gave me a concise definition as to why this ritual actually is/was but the list of creatures available on the site was invaluable.
+
+
+Ueno city,Japan, Ueno, Google Maps, 2021, maps.google.com
+You may notice that this is Google Maps. I used this to get most of the information about the setting of this short story. The amount of images I was able to capture to inspire the settings of this story, was staggering, this allowed me to make much better descriptions of the land and scenery around the characters. 
+
