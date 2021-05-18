@@ -75,4 +75,11 @@ Extremely good at math
 - [x] submit
 
 ## propperly cited sources
+
 Toriyama, Sekien. Hyakki shūi /, 2, Maekawa Yahei, 1805, https://doi.org/10.5479/sil.892810.39088018214379
+
+Iwasaka, Michiko, and Barre Toelken. Ghosts and the Japanese; Cultural Experience in Japanese Death Legends. University Press of Colorado, 1994. Print.
+This book was the only credible source that i could find that actually had anecdotes about Yokai. many of the stories shared in the hyakumonogatari kaidenkai scene were inspired by the stories in this book.
+
+What is Hyakumonogatari?., 2010. Web. May 14, 2021
+This website has a great wealth of information on this ritual and Japanese spirits as a whole. I used this website as a sort of spring board for my research. It not only gave me a concise definition as to why this ritual actually is/was but the list of creatures available on the site was invaluable.
