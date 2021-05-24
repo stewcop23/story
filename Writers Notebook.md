@@ -1,8 +1,29 @@
 ## Brainstorming
-
-* ~~Part short story with interspersed poems~~
+* ~Part short story with interspersed poem.~ 
+* Japan
+  * Needs to be near forest
+  * Needs to be not really close to big cities
+  * Ueno fits both
 * Mythological creatures
-   * Horror
+  * Horror
+  * Ritual goes wrong
+* Perspective 
+  * Char 1 dies then char 2
+  * First person omnicient
+  * Told from monster
+    * Nah wouldnt work
+* Final scene
+  * In forest (fits with mythology)
+  * Char 1 saved by char 2
+  * Bromance
+    * Implied but not shown
+  * Stone pillar thing
+* General setting
+  * Near river
+  * Fence 
+* Writing style intentions
+  * Vivid descriptions
+
 
 ## DQ
 How can I create a short horror story that incorporates elements and creatures(?) from east Asian mythology/history/art
@@ -61,9 +82,8 @@ typical Kyle except for:
 * likes poetry
 * good at but hates fighting
 * kind of dislikes horror  
-
 Dorito shaped  
-Extremely good at math
+Extremely good at math  
 
 
 ## Todo
